@@ -6,6 +6,6 @@ Yatharth Chauhan
 
 Karan Bhatt
 
-Vaishnavi Bhalodiya
+Vaishnavi Bhalodi
 
 Vrunda Shah
